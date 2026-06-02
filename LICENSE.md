@@ -1,4 +1,4 @@
-# 
+# Código abierto binance futures bot scripts para Mac OS | Nuevo binance futures bot scripts para PC Windows. Con contratos perpetuos y detección de ataques sandwich — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
